@@ -3,7 +3,7 @@ Hi, I'm @danufrias
 - 🌱 I am currently learning phyton and trying to further develop my skills
 - 💞️ I am looking to collaborate in a company that can offer me constant development and training.
 - 📫 How to contact me
-Cell +52 6142181077
+Cell +52 6143425956
 email
 danupayfrias@gmail.com
 
